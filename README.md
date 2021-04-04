@@ -4,6 +4,8 @@
 - 💞️ I’m looking to collaborate on creating websites and Discord Bots
 - 📫 You can reach me at azerclashroyal@gmail.com or via Discord - Azer#8885
 - 😅 Pronounce him/he
+- ✨ Join [my server](https:///discord.gg/SyddyzGJsa) at https://discord.gg/SyddyzGJsa.
+
 
 
 <!---
