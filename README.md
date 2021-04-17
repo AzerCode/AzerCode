@@ -1,11 +1,11 @@
 - 👋 Hi, I’m Azer A.K.A AzerCode
-- 👨‍💻 I'm a front-end web developer
-- 👀 I’m interested in JavaScript, HTML & CSS
+- 👨‍💻 I'm currently a front-end web developer
+- 👀 I’m interested in JavaScript, HTML, & CSS
 - 🌱 I’m currently learning JavaScript, CSS and React.JS
-- 💞️ I’m looking to collaborate on creating websites and Discord Bots
+- 💞️ I’m looking to collaborate on creating Open Source Projects
 - 📫 You can reach me at azerclashroyal@gmail.com or via Discord - Azer#8885
 - 😅 Pronounce him/he
-- ✨ Join [my server](https:///discord.gg/SyddyzGJsa) at https://discord.gg/SyddyzGJsa.
+- ✨ Join my server [Immortal's World](https://discord.gg/SyddyzGJsa)
 
 
 
