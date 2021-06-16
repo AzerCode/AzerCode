@@ -5,7 +5,6 @@
 - 💞️ I’m looking to collaborate on creating Open Source Projects
 - 📫 You can reach me at azerclashroyal@gmail.com or via Discord - Azer#8885
 - 😅 Pronounce him/he
-- ✨ Join my server [Immortal's World](https://discord.gg/SyddyzGJsa)
 
 
 
